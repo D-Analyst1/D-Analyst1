@@ -7,7 +7,7 @@
 -  I’m looking to collaborate on Real World data projects , business insight
 -  How to reach me Email: Bosschuks97@email.com 
 - Pronouns: He/Him  
--  Fun fact: I'm a Mass Communication graduate transitioning into Data & HR Analytics 🚀
+-  Fun fact: I'm a Mass Communication graduate transitioning into Data & Data Analytics 🚀
 
 <!---
 D-Analyst1/D-Analyst1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
